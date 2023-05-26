@@ -9,7 +9,7 @@
 
 
 
-![](https://media.tenor.com/qI23OgY61UQAAAAM/mob-psycho-mob-psycho100.gif)
+![](https://media.tenor.com/WLcbm7ihHHsAAAAM/aesthetic.gif)
 
 
 
