@@ -1,8 +1,7 @@
 ### *OLA* 🖤
 
 - *Ola meu nome verdadeiro e christopher*
-- *Estou estudando codigos de programçao como JS*
-- ![](https://img.icons8.com/?size=1x&id=hKrJAdwqbGgG&format=gif)
+- *Dev de modulos de magisk 🤝😈
 - *Uso isso como repositorio de programas*
 - *Programar por hobby 🌑🍃*  
 
