@@ -1,7 +1,7 @@
 ### *OLA* 🖤
 
 - *Ola meu nome verdadeiro e christopher*
-- *Dev de modulos de magisk 🤝😈
+- *Dev de modulos de magisk 🤝😈*
 - *Uso isso como repositorio de programas*
 - *Programar por hobby 🌑🍃*  
 
